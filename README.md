@@ -10,3 +10,6 @@ Tarea grupal de laboratorio semana 14
 - Josue Jonathan Diaz Perez
 
 
+
+https://github.com/user-attachments/assets/8a5d8541-2fec-4c07-9667-fda2016b687b
+
